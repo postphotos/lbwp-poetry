@@ -2,7 +2,7 @@ Never eat shredded wheat,
 
 You'll be lost without direction.
 
-The West's horizon will eat
+The West's sunset will eat
 
 the sun again, no suspension.
 
