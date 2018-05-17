@@ -7,7 +7,7 @@ The West's sunset will eat
 the sun again, no suspension.
 
 
-After the meetup we will feast,
+During WWP we'll feast,
 
 Git tonight we will teach,
 
