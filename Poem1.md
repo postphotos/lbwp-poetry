@@ -16,4 +16,4 @@ Is the point to head East
 to the other side of the 'Beach?
 
 
-Let's go eat some Tacos and talk about how to change the world.
+Let's go change the world.
