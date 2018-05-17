@@ -13,7 +13,8 @@ Git tonight we will teach,
 
 Is the point to head East
 
-to the other side of Long Beach?
+to the other side of the 'Beach?
 
 
-Let's go eat some pizza, ice cream and whatnot, all while we talk about how to change the world.
+Let's get cheesecake *and* change the world.
+
