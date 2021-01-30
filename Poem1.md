@@ -16,4 +16,5 @@ Is the point to head East
 to the other side of the 'Beach?
 
 
-Let's go change the world.
+Let's get cheesecake *and* change the world.
+
