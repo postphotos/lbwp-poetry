@@ -1,4 +1,4 @@
-Never eat shredded wheat,
+Never eat shredded beets,
 
 You'll be lost without direction.
 
